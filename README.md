@@ -1,0 +1,7 @@
+- Hello there 👋, I’m Mohammed Afsal M A!🎯
+- 📌 I’m interested in Java and MySQL
+- 📖 I’m currently learning Spring framework in Java
+- 🫰 Hobby: Travelling
+- 📫 How to reach me afsalcruzz123@gmail.com
+- 😄 Pronouns: Mohammed Afsal
+- ⚡ Fact: Belive yourself first
