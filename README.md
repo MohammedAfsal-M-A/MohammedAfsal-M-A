@@ -18,7 +18,7 @@
 
 - 🫰 Hobby **Travelling**
 
-- ⚡ Fun fact **I'm funny😅**
+- ⚡ Fact **Believe In Yourself**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
