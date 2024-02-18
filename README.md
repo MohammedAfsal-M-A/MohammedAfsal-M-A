@@ -16,7 +16,7 @@
 
 - 📫 How to reach me **afsalcruzz123@gmail.com**
 
-- 🫰 Hobby [Travelling](Travelling)
+- 🫰 Hobby **Travelling**
 
 - ⚡ Fun fact **I'm funny😅**
 
